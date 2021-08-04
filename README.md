@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **siddheswarojha23@gmail.com**
 
-- ⚡ Fun fact **Probably the only programmer who loves tea more than coffee**
+- ⚡ Fun fact **If it works, dont touch it**
 
 
 
