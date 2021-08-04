@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **siddheswarojha23@gmail.com**
 
-- ⚡ Fun fact **If it works, dont touch it**
+- ⚡ Fun fact **If it works, don't touch it**
 
 
 
