@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **siddheswarojha23@gmail.com**
 
-- ⚡ Fun fact **If it works, don't touch it**
+- ⚡ Fun fact **Be the semicolon of one's code**
 
 
 
